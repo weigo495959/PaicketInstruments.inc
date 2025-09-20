@@ -1,2 +1,2 @@
 # PaicketInstruments.inc
-Fun and software Creative consumer products.
+Fun and software Creative consumer products - coming soon
